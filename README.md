@@ -1,16 +1,14 @@
-### Hi there 👋
+## Who is that man?
 
-<!--
-**AlejandorLazaro/AlejandorLazaro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Just a Humble (TX) Game Producer who's donated 14-inches of hair twice now! Currently doing a Master's degree for Game Production at SMU Guildhall and loving every minute of it!
 
-Here are some ideas to get you started:
+* * *
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+My personality can be summed up in my answer to the following question:
+
+Q: What song lyrics go with "Wake me up..?" 
+A: "before you Go-Go!"
+
+* * *
+
+Find me at http://linkedin.com/in/long-hair-dont-care/
