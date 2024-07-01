@@ -1,6 +1,6 @@
 ## Who is that man?
 
-Just a Humble (TX) Game Producer who's donated 14-inches of hair twice now! Currently doing a Master's degree for Game Production at SMU Guildhall and loving every minute of it!
+Just a Humble (TX) Game Producer who's donated 14-inches of hair twice now! Recently graduated with a Master's degree for Game Production at SMU Guildhall and loved every minute of it!
 
 * * *
 
