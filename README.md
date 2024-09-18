@@ -12,3 +12,5 @@ A: "before you Go-Go!"
 * * *
 
 Find me at http://linkedin.com/in/alramirez/
+
+![Alejandro's Codewars Stats](https://github.r2v.ch/codewars?user=AlejandorLazaro&top_languages=true&theme=gradient&hide_clan=true)
